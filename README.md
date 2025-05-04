@@ -1,5 +1,8 @@
-## Hi there 👋
-
+## If your looking for someone to tell you what you 𝘸𝘢𝘯𝘵 to hear, this isn't the place.  
+## Here, I give honest, no-fluff advice-whether it's about life, relationships, or figuring yourself out.  I'm not here to judge, but I won't lie to you either.  If you're in the wrong, I'll say it.  If you're in the right, I'll cheer you on.  
+## This is a space for real talk-raw, respectful, and always meant to help.
+## **
+## Everything I share here comes from personal thoughts, experiences, or things I've learned along the way.  I'm not a licensed therapist, counselor, or any kind of certified professional.  Please don't take what I say as professional advice-always trust your gut and reach out to someone qualified if you need help.  I'm just here to share, not to diagnose or treat.  What you choose to do with this info is totally up to you.
 <!--
 **ANonymousAdvice1111/ANonymousAdvice1111** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
